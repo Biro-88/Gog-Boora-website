@@ -1,1 +1,1 @@
-# Gog-Boora-website
+# Gøøka-Böörö website
